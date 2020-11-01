@@ -1,1 +1,1 @@
-# cuddly-doodle
+# For shopping cart photo only
